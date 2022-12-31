@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @honambsn
+- 👋 Hi, I’m honam
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on anything
